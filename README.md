@@ -1,0 +1,1 @@
+eto dlja tg bota nigger 
